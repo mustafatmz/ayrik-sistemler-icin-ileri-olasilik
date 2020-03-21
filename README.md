@@ -1,0 +1,1 @@
+# ayrik-sistemler-icin-ileri-olasilik
